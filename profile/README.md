@@ -50,4 +50,4 @@ We're always open to new ideas, collaborations, and contributors.
 📧 vc_president_technical_ppts@csvtu.ac.in
 
 📍 UTD CSVTU, Bhilai, Chhattisgarh  
-🔗 [Follow us on Instagram](https://www.instagram.com/nextronix.utd/) | [Connect on LinkedIn](https://www.linkedin.com/company/nextronix-utd/posts/?feedView=all)
+🔗 [Follow us on Instagram](https://www.instagram.com/nextronix.utd/) | [Connect on LinkedIn](https://www.linkedin.com/company/nextronix-utd/posts/?feedView=all) | [Subscribe on YouTube](https://www.youtube.com/@NEXTRONIX-s6x)
